@@ -22,7 +22,7 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-Frank met the Unicorn King who granted him magic powers. He was now in control of the section of the zoo that had unicorns. What a big responsibility. 
+Frank met the Unicorn King who granted him magic powers. Frank was now in control of the section of the zoo that had unicorns. What a big responsibility. He walked a little further into the Unicorn King's den and met a Friendly Koala. He promised Frank that he would lead with him. Together they ruled over the unicorn kingdom with compassion and love.
 
 The end.
 
